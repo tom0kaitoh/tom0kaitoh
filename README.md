@@ -1,6 +1,6 @@
 ![image alt](https://github.com/tom0kaitoh/tom0kaitoh/blob/main/IMG_20260403_161119.jpg)
  ᅠᅠ
- ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ𓎟𓎟　⠀ᅠᅠ   ⠀ 　𓎟𓎟　 
+ ᅠᅠᅠᅠᅠᅠᅠᅠᅠ𓎟𓎟　⠀ᅠᅠ   ⠀ 　𓎟𓎟　 
 
  ᅠᅠᅠᅠᅠᅠᅠᅠ　c+hᅠᅠᅠᅠ𓏵ᅠᅠᅠᅠmostly w2iᅠᅠ  ⠀  
  
