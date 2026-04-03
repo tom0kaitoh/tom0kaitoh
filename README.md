@@ -1,8 +1,8 @@
-![image alt](https://github.com/tom0kaitoh/tom0kaitoh/blob/main/Untitled378_20260225154641.png)
- ᅠᅠᅠ.ᅠᅠᅠᅠ꒰ ⠀alias: @tom /  lunar   ⠀꒱ᅠᅠᅠᅠ‹𝟹 
- 
- ᅠᅠᅠ　𓎟𓎟　⠀ᅠᅠ   ⠀ 　𓎟𓎟　
- 
- ᅠᅠᅠ❝ᅠ ᅠ i/esfj-t ᅠ⸝⸝ᅠᅠᅠ  ⠀𓏏𓏏ᅠᅠ  ⠀ artist    ⠀𓂃 
+![image alt](https://github.com/tom0kaitoh/tom0kaitoh/blob/main/IMG_20260403_161119.jpg)
+ ᅠᅠ
+ ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ　𓎟𓎟　⠀ᅠᅠ   ⠀ 　𓎟𓎟　 
 
-꒰ ⠀facts. abt .me  ⠀꒱
+ ᅠᅠᅠᅠᅠᅠᅠᅠ　c+hᅠᅠᅠᅠ𓏵ᅠᅠᅠᅠmostly w2iᅠᅠ  ⠀  
+ 
+  ᅠᅠᅠᅠᅠᅠᅠᅠ　[straw.p](https://tomatoitoes.straw.page/)ᅠᅠᅠᅠᅠᅠ[en.prounouns](https://en.pronouns.page/@tom0ka.itoh)
+ 
