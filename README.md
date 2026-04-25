@@ -2,9 +2,9 @@
 
  ᅠᅠ ᅠᅠᅠᅠᅠ
  
- ᅠᅠ𓎟𓎟　⠀ᅠᅠ   ⠀ 　𓎟𓎟　 
+ ᅠᅠᅠᅠ 𓎟𓎟　⠀ᅠᅠ   ⠀ 　𓎟𓎟　 
 
-c+hᅠᅠᅠᅠ𓏵ᅠᅠᅠᅠmostly w2iᅠᅠ  ⠀  
+ᅠᅠ c+hᅠᅠᅠᅠ𓏵ᅠᅠᅠᅠmostly w2iᅠᅠ  ⠀  
  
- [straw.p](https://tomatoitoes.straw.page/)ᅠᅠᅠᅠᅠᅠ[en.prounouns](https://en.pronouns.page/@tom0ka.itoh)
+ ᅠᅠ [straw.p](https://tomatoitoes.straw.page/)ᅠᅠᅠᅠᅠᅠ[en.prounouns](https://en.pronouns.page/@tom0ka.itoh)
  
